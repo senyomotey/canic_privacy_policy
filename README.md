@@ -1,1 +1,0 @@
-# canic_privacy_policy
